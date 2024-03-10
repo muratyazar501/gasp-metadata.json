@@ -1,1 +1,0 @@
-# mangata-metadata
